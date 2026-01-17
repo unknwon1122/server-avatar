@@ -1,1 +1,0 @@
-# en das melalukan pesan nihan
